@@ -44,3 +44,6 @@ Clear → Simple → Efficient → Integrated → Refined
 ```
 
 Augmented. Resolute. Integrated.
+
+https://pmc.ncbi.nlm.nih.gov/articles/PMC3268181/
+https://pmc.ncbi.nlm.nih.gov/articles/PMC6436976/
